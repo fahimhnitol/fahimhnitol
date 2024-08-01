@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @fahimhnitol
+- 👀 I’m interested in Product, Project Management
+- 🌱 I’m currently learning A lot of things main focus on Project Management, Development, UX/UXR and manymore.
